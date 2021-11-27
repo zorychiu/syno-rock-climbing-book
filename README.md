@@ -1,1 +1,0 @@
-# syno-rock-climbing-book
